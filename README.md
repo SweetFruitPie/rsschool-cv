@@ -1,1 +1,1 @@
-https://sweetfruitpie.github.io/rsschool-cv/cv
+https://sweetfruitpie.github.io/rsschool-cv/
